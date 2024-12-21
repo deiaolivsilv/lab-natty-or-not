@@ -21,8 +21,6 @@ O texto está repleto em conteúdo de sustentabilidade, e como
 as IAS podem atuar nesse ambiente.
 **TEXTO: "Mundo Sustentável com IA: Como a Inteligência Artificial Pode Ajudar a Criar um Futuro Mais Verde"**
 
-![image](https://github.com/user-attachments/assets/054ffaab-484f-4466-bba2-310da405a843)
-
 
 
 UM MUNDO SUSTENTÁVEL COM AS IAS
