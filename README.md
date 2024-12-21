@@ -39,6 +39,7 @@ Com o apoio da IA, podemos transformar o mundo em um lugar mais verde e equilibr
 
 
 
+![Uploading image.png…]()
 
 
 
