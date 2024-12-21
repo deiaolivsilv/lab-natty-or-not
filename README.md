@@ -1,4 +1,4 @@
-
+![image](https://github.com/user-attachments/assets/ab3a96cf-e0d4-417b-bfcb-ca4d0894db32)
 ##
 
 UM MUNDO SUSTENTÁVEL COM AS IAS
@@ -37,9 +37,8 @@ Com o apoio da IA, podemos transformar o mundo em um lugar mais verde e equilibr
 
 
 
+![image](https://github.com/user-attachments/assets/b4bdb7a0-ee52-4a91-ba83-b0a84282de8a)
 
-
-![Uploading image.png…]()
 
 
 
