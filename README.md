@@ -1,7 +1,3 @@
-![Leonardo_Phoenix_a_highly_detailed_and_mesmerizing_cinematic_p_2 (1)](https://github.com/user-attachments/assets/15dd4cc2-8c12-4f1e-bfd4-7905fde6aa6b)# Natural ou Fake Natty? Como Vencer na Era das IAs Generativas
-
-
-
 
 ##
 
