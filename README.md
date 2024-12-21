@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/ab3a96cf-e0d4-417b-bfcb-ca4d0894db32)
+
+
 ##
 
 UM MUNDO SUSTENTÁVEL COM AS IAS
